@@ -1,0 +1,2 @@
+# Newbie
+Hanya untuk belajar
